@@ -1,4 +1,4 @@
-BADGE WALKS - Greatest to Least - 71,194 badges - Some badges are inactive, did not add closed game badges. 
+BADGE WALKS - Greatest to Least - 71,194 badges - Some badges are inactive, did not add closed game badges.  
  
 https://www.roblox.com/games/3210622855/14-068-Badges-Manners-Badge-Walk                                          14068
 https://www.roblox.com/games/5166670285/12-003-Badge-Walk-Free-Badges                                             12003
